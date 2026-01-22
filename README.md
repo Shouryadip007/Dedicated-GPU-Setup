@@ -1,2 +1,3 @@
-# gpu_test
-test your dedicated gpu 
+Use your GPU to blow your HOUSE.
+
+Well I am also a rookie already fucked one of my gaming laptop . 
